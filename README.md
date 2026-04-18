@@ -3,7 +3,7 @@
 🎓 Diploma Holder CST'25 @ Technique Polytechnic Institute  
 🏆 1st Class with Distinction
 
-👩‍🎓 BTech CSE_AIML'28 @ Techno Main SaltLake  
+👩‍🎓 BTech CSE_AIML'28 @ Techno Main SaltLake | Techno India  
 
 👩‍💻 Exploring AI & Machine Learning  
 
